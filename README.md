@@ -14,7 +14,6 @@ HEX PROJECT / SOME SOURCE CODE SHOW IT'S LEGIT ONLY. IF YOU WANT FULL VERSION, C
 * ` SAFE 100% IF BANNED = REFUND MONEY`
 * ` WE GIVE YOU THE HIGHEST LEVEL OF SECURITY AND PRIVACY , DON'T WORRY`
 
-🌐・ **Website** : https://sarnax.xyz
 
 🐵・**We** have a backup server base and many main servers and we are **LEGIT**
 
