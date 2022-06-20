@@ -4,14 +4,8 @@ HEX PROJECT / SOME SOURCE CODE SHOW IT'S LEGIT ONLY. IF YOU WANT FULL VERSION, C
 ```
 
 ***
-  <p align="center">
-    <a href="https://discord.com/users/943374631644045363">
-        <img title="Sarnax discord" alt="SarnaxLii's discord" src="https://discord.c99.nl/widget/theme-3/943374631644045363.png"/>
-    </a>
-</p>
 
-
-### 🔔・ NEW DISCORD : [HEX SERVER](https://discord.gg/JsxqNHgR4m) 
+### 🔔・ NEW DISCORD : [LordCheat SERVER](https://discord.gg/84QSkejhjA) 
 
 
 * `👋 SELL CHEATING PRIVATE / SPOOFER / SOURCE CODE / ETC `
